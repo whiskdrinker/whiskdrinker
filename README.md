@@ -1,8 +1,7 @@
 ## Uhhh heya I guess.. ??
 
 <![
-](https://github.com/whiskdrinker/whiskdrinker/blob/cda38edcd7fc33ec77907aaa9ab7c9a495252695/tumblr_9785849ef52cffde21b7b896e2829419_e9beb3f4_2048.jpg)
-
+](https://preview.redd.it/am-i-the-only-one-who-wants-husk-and-angel-dust-to-just-be-v0-ervacet5500d1.jpeg?auto=webp&s=9e23a510b3e97cbb8f16964e2c0185d80940814a)
 
 
 - 🍾 Heya, you probably understand who I am already so let's cut to the chase.
