@@ -1,8 +1,7 @@
 ## "Love in a bottle, love in a bottle! Don't need love when it comes in a bottle!"
 
 <![
-](https://media1.tenor.com/m/3qhxf5cdMEQAAAAC/hazbin-hotel-hazbin.gif)
-- 🍾 Heya, you probably understand who I am already so let's cut to the chase.
+](https://cdnb.artstation.com/p/assets/images/images/078/262/729/original/christine-eloriaga-loserbaby.gif?1721655224)- 🍾 Heya, you probably understand who I am already so let's cut to the chase.
 - 🐈‍⬛ I'm still workin' on the GitHub so ignore it.
 - 🍾 If ya wanna speak with me, sign my ata or straw - though I probably won't respond.
 - 🐈‍⬛ Like I said, ata and straw.
