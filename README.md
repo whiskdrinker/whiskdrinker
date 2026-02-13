@@ -1,8 +1,7 @@
 ## "Here's to you, baby- PFFT - ANGEL?!"
 
 <![
-](https://preview.redd.it/am-i-the-only-one-who-wants-husk-and-angel-dust-to-just-be-v0-ervacet5500d1.jpeg?auto=webp&s=9e23a510b3e97cbb8f16964e2c0185d80940814a)
-
+](https://64.media.tumblr.com/584ae9274af986d0bc635099db39a6f2/b671949ef0584e01-ab/s540x810/275a64971710481f6bade1608a261abfd5e70b9d.gif)
 
 - 🍾 Heya, you probably understand who I am already so let's cut to the chase.
 - 🐈‍⬛ I'm still workin' on the GitHub so ignore it.
