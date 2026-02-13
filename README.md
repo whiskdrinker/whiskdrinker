@@ -1,8 +1,7 @@
 ## "Love in a bottle, love in a bottle! Don't need love when it comes in a bottle!"
 
 <![
-](https://media.tenor.com/dFbOhZ_QpvAAAAAM/hazbin-hotel-hazbin.gif)
-
+](https://media1.tenor.com/m/3qhxf5cdMEQAAAAC/hazbin-hotel-hazbin.gif)
 - 🍾 Heya, you probably understand who I am already so let's cut to the chase.
 - 🐈‍⬛ I'm still workin' on the GitHub so ignore it.
 - 🍾 If ya wanna speak with me, sign my ata or straw - though I probably won't respond.
