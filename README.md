@@ -1,12 +1,26 @@
-## "Love in a bottle, love in a bottle! Don't need love when it comes in a bottle!"
+## GUYS! PLEASE READ THIS!
 
 <![
-](https://cdnb.artstation.com/p/assets/images/images/078/262/729/original/christine-eloriaga-loserbaby.gif?1721655224)- 🍾 Heya, you probably understand who I am already so let's cut to the chase.
-- 🐈‍⬛ I'm still workin' on the GitHub so ignore it.
-- 🍾 If ya wanna speak with me, sign my ata or straw - though I probably won't respond.
-- 🐈‍⬛ Like I said, ata and straw.
-- 🍾 DNIUF / DNIUID / DNI !! | I don't trust nobody online - only my two friends because I actually know them.
-- 🐈‍⬛ You can interact though if I don't have any variant of DNI in my name.
-- 🍾 C+H freely I guess.
-- 🐈‍⬛ Mute on Pony Town.
-- 🍾 Feel free to just sit by me; I don't mind it at all unless you're, well, you know who.
+](https://media1.tenor.com/m/L_s8aqsBGHsAAAAC/lucifer-morningstar-season-2.gif)
+
+- HIHIHI!! Welcome to my GitHub!
+
+- First of all - I LOVE YOU ALL THANKS FOR CHECKIN' THIS OUT !!
+
+- I might switch between Lucifer, Blitz, Husk, and Adam because I can!!
+
+- We all hate Alastor, right? RIGHT?
+
+- Obviously I wanna be Lucifer right now because YES?!
+
+- C+H FREELY + SIGN ATA + SIGN STRAW !!
+
+- My pronouns are peak, okay??
+
+- YOU ALL MEAN MORE THAN ANYTHING TO MEEE
+
+- Hugs hugs hugs plsplspls !!
+
+- I'm the best dad here, okay? Okay.
+
+- RUBBER DUCK FANS INT!!!
