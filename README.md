@@ -1,7 +1,7 @@
-## GUYS! PLEASE READ THIS!
+## aw man we gotta read this
 
 <![
-](https://media1.tenor.com/m/L_s8aqsBGHsAAAAC/lucifer-morningstar-season-2.gif)
+](https://media.tenor.com/a7wnRO9c7EAAAAAM/why-sad.gif)
 
 - HIHIHI!! Welcome to my GitHub!
 
@@ -11,7 +11,7 @@
 
 - We all hate Alastor, right? RIGHT?
 
-- Obviously I wanna be Lucifer right now because YES?!
+- If my changing annoys you... Uhhh... Wait I don't know how to respond to that-
 
 - C+H FREELY + SIGN ATA + SIGN STRAW !!
 
@@ -21,6 +21,12 @@
 
 - Hugs hugs hugs plsplspls !!
 
-- I'm the best dad here, okay? Okay.
+- I'm a super good dad trust me
 
 - RUBBER DUCK FANS INT!!!
+
+- HORSE FANS INT!!!
+
+- GUITAR FANS INT!!!
+
+- Whiskey ppl INT!!!
