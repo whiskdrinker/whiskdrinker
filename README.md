@@ -1,32 +1,50 @@
-## aw man we gotta read this
+## im out for love okay??
 
 <![
-](https://media.tenor.com/a7wnRO9c7EAAAAAM/why-sad.gif)
+](https://media.tenor.com/T-SSDVh5UksAAAAM/dandys-world-astro.gif)
 
 - HIHIHI!! Welcome to my GitHub!
 
 - First of all - I LOVE YOU ALL THANKS FOR CHECKIN' THIS OUT !!
 
-- I might switch between Lucifer, Blitz, Husk, and Adam because I can!!
+- I love my friends soooo much okay? okay.
 
-- We all hate Alastor, right? RIGHT?
+- I kinda suck at interacting sooooo...
 
-- If my changing annoys you... Uhhh... Wait I don't know how to respond to that-
+- if you see a cursed vox with a soulvester, that's probably me.
 
-- C+H FREELY + SIGN ATA + SIGN STRAW !!
+- Guys im actually really nice !!
 
-- My pronouns are peak, okay??
+- I'm pretty lonely ngl....
 
-- YOU ALL MEAN MORE THAN ANYTHING TO MEEE
+- Guys i'd probably be the mute one of a friend group on pony town so... my bad!
 
-- Hugs hugs hugs plsplspls !!
+- STOP SENDING ME ART ON MY ATA THAT SAYS 'GAY' !
 
-- I'm a super good dad trust me
+- Okay, I gotta admit that I love too many fandoms without knowin' that much about them. The only ones I really know much about are Hazbin Hotel, Helluva Boss, and Dandy's World. If you wanna get me into a new fandom, sign my ata!
 
-- RUBBER DUCK FANS INT!!!
+- DO NOT COPY MY SKINS + FRIENDS SKINS!!
 
-- HORSE FANS INT!!!
+- We all love each other, right? Yeah!
 
-- GUITAR FANS INT!!!
+- If I hurt you before, just hate me for it, okay? I'm horrible at doing the opposite anyways.
 
-- Whiskey ppl INT!!!
+- If we also had any.. romantic situations, I probably fell out of it because of personal issues.
+
+- I drink too much.
+
+- I'm very awkward so sorry if I say stupid things.
+
+- INTWEC: Have/had beef with me or my friends!
+
+- DNI: Ship minors, under 10, gore, r34, ya'know! The usual.
+
+- INT: If you are the opposite of the DNI!
+
+- You can trust me with your friendships... Not sure about romance though!
+
+- Guys, as always, I. AM. NOT. PANSEXUAL!! My Straw Page proves it!!
+
+- This is getting too long! Sorry 'bout that!
+
+- Do not be afraid to whisper or interact! I won't get mad at all!!
